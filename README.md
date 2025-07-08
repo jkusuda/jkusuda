@@ -9,7 +9,7 @@
 
 🚀 I am always looking for a new challenge and a place to learn more skills.
 
-🎨 Above all, my greatest joy in life is seeing my ideas come to life through my work.
+🎨 And above all, my greatest joy in life is seeing my ideas come to life through my work!
 
 ## Connect with Me!
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/jordankusuda/)
